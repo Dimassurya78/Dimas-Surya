@@ -1,2 +1,0 @@
-# Dimas-Surya
-Buat Ema
